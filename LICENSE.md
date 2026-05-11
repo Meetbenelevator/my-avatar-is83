@@ -1,4 +1,4 @@
-#  
+#  sol's rng updated Scripts is the best sol's rng Script, featuring fly and undetectable. Safe and powerful for all your needs.
 
 
 
